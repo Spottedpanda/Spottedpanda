@@ -1,3 +1,7 @@
+3.12.26 I'm adding stamps as you're looking at my profile.
+
+
+
 Hello, I'm Mia.
 
 I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood.
