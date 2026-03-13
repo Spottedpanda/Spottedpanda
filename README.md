@@ -7,7 +7,8 @@ Hello, I'm Mia.
 
 I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.)
 
-
+I'm mainly afk.. (away status), expect late replies. (+1 minute)
+<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
 
 Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
