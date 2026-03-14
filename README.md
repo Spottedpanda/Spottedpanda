@@ -2,7 +2,8 @@
   (https://spottedpanda.atabook.org/) 
 </p>
 <p align="center">
-  Send me messages, even while anonymous!
+  Send me messages, even while anonymous! 
+  <img src="https://caitsith.neocities.org/gloomybear.gif"/>
 </p>
 
 <p align="center">
@@ -40,6 +41,8 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://blinkies.cafe/b/blinkiesCafe-Bt.gif" alt="generated blinkie"/>
 <img src="https://pixelsafari.neocities.org/blinkies/animal/batmoon.gif"/>
 <img src="https://pixelsafari.neocities.org/blinkies/candy2.gif"/>
+<img src="https://y2k.neocities.org/blinkiez/tumblr_p1yz3hCS6m1weku4wo6_250.gif"/>
+<img src="https://pixel-woods.neocities.org/images/blinkies/gloomybear.gif"/>
 </p>
 
 <p align="center">
@@ -50,4 +53,9 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelsafari.neocities.org/stamps/bunny9.gif"/>
 <img src="https://pixelsafari.neocities.org/stamps/ilovecrows.gif"/>
 <img src="https://pixelsafari.neocities.org/stamps/bunny6.gif"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_mr1k13DUYS1qz4rgp.png"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lbupjD71v11djx_1280.gif"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_pdtswyY1sp1wpplaao6_250.jpg"/>
+<img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif"/>
+<img src="https://pixel-woods.neocities.org/images/stamps/purplestar.png"/>
 </p>
