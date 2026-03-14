@@ -32,6 +32,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
 
+<p align="center>
 <img src="https://blinkies.crd.co/assets/images/gallery25/a4732b43.gif?v=f551d29f" alt="Untitled"/><img src="https://blinkies.crd.co/assets/images/gallery03/c55deaa6.gif?v=f551d29f" alt="Untitled"/><img src="https://oddityz.neocities.org/blinkies/pink/icecreamisevil.gif"/><img src="https://oddityz.neocities.org/blinkies/pink/sometimesijustwanttoscream.gif"/>
 <img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
 <img src="https://adriansblinkiecollection.neocities.org/g13.gif"/>
@@ -39,7 +40,9 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://blinkies.cafe/b/blinkiesCafe-Bt.gif" alt="generated blinkie"/>
 <img src="https://pixelsafari.neocities.org/blinkies/animal/batmoon.gif"/>
 <img src="https://pixelsafari.neocities.org/blinkies/candy2.gif"/>
+</p>
 
+<p align="center">
 <img src="https://pixelsafari.neocities.org/stamps/more/hottopic.gif"/> <img src="https://pixelsafari.neocities.org/stamps/mcr.png"/><img src="https://kaysstampsnstuff.carrd.co/assets/images/gallery10/0110d122.jpg?v=19c6e946" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery01/187e80cf.png?v=2e2c9a9d" alt="Untitled"/><img src="https://supplies.ju.mp/assets/images/gallery02/3223634e.png?v=2e2c9a9d" alt="Untitled"/>
 <img src="https://oddityz.neocities.org/stamps/pink/ilovebows.png"/>
 <img src="https://oddityz.neocities.org/stamps/bw/pandaluv.png"/>
@@ -47,3 +50,4 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelsafari.neocities.org/stamps/bunny9.gif"/>
 <img src="https://pixelsafari.neocities.org/stamps/ilovecrows.gif"/>
 <img src="https://pixelsafari.neocities.org/stamps/bunny6.gif"/>
+</p>
