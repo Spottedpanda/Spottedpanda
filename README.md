@@ -18,8 +18,9 @@
 <img src="https://supplies.ju.mp/assets/images/tiny1/222cdbb1.gif?v=2e2c9a9d" alt="Untitled"/> Hello, I'm Mia.
 </p>
 
-
-   
+<p align="center">
+About me
+</p>
 I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, and mainly pandas. Don't be surprised for what I'm about to tell you: I make accessories for each of them.
 
 Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor because I don't have a good computer to be publishing on other sites, but Julian's Editor is available for most devices such as mobile, desktop, etc. I do not have an estimated date when it'll be completed.
@@ -30,9 +31,11 @@ Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting
 
 Some of my goals are like, really unrealistic; create Work at a Pizza Place merchandise (keychains mainly), and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate.
 
+<p align="center">
+Pony Town
+</p>
 I'm mainly afk.. (away status), expect late replies. (+1 minute)
 <img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
-
 Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
 <p align="center">
