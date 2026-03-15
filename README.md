@@ -24,7 +24,7 @@ I don't have much.. but I collect things mainly. I do sewing, specifically, I'm 
 
 Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor because I don't have a good computer to be publishing on other sites, but Julian's Editor is available for most devices such as mobile, desktop, etc. I do not have an estimated date when it'll be completed.
 
-Ice cream is the best.. definitely pizza too, don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though. <img src="https://graphic.neocities.org/tumblr_inline_mibjrsgbUr1qz4rgp.gif"/>
+Ice cream is the best.. definitely pizza too (pineapple pizza..), don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though. <img src="https://graphic.neocities.org/tumblr_inline_mibjrsgbUr1qz4rgp.gif"/>
 
 Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting. Kuromi is one of my favorite characters.
 
@@ -85,6 +85,8 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://blinkie-net.neocities.org/Stamps/Pp/strawberries.png"/>
 <img src="https://blinkie-net.neocities.org/Stamps/4/mnr.drach.png"/>
 <img src="https://blinkie-net.neocities.org/Stamps/8/Neapolitan.jpg"/>
+<img src="https://pixelbank.neocities.org/stamp/15.png"/>
+
 
 
 </p>
