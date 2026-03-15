@@ -38,7 +38,6 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
 <img src="https://adriansblinkiecollection.neocities.org/g13.gif"/>
 <img src="https://graphic.neocities.org/huhh.gif"/>
-<img src="https://blinkies.cafe/b/blinkiesCafe-Bt.gif" alt="generated blinkie"/>
 <img src="https://pixelsafari.neocities.org/blinkies/animal/batmoon.gif"/>
 <img src="https://pixelsafari.neocities.org/blinkies/candy2.gif"/>
 <img src="https://y2k.neocities.org/blinkiez/tumblr_p1yz3hCS6m1weku4wo6_250.gif"/>
