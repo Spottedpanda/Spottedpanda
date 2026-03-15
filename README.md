@@ -42,6 +42,8 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelsafari.neocities.org/blinkies/candy2.gif"/>
 <img src="https://y2k.neocities.org/blinkiez/tumblr_p1yz3hCS6m1weku4wo6_250.gif"/>
 <img src="https://pixel-woods.neocities.org/images/blinkies/gloomybear.gif"/>
+<img src="https://loleah.neocities.org/graphics/blinkies/buddies.gif" alt="aj let&#39;s be buddies"/>
+<img src="https://petrapixel.neocities.org/assets/img/blinkies/blinkies/b%20(2).gif" alt="Blinkie: I love Glitter"/>
 </p>
 
 <p align="center">
@@ -57,4 +59,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://y2k.neocities.org/stamps/tumblr_pdtswyY1sp1wpplaao6_250.jpg"/>
 <img src="https://y2k.neocities.org/stamps/tumblr_inline_pedksjWYF31vlugze_500.gif"/>
 <img src="https://pixel-woods.neocities.org/images/stamps/purplestar.png"/>
+<img src="https://futurefishy.neocities.org/assets/stamps/panda.png" alt="ikea baby panda teddy on abstract pink background stamp"/>
+<img src="https://cadeion.neocities.org/Assets/Other%20Stamps/25/lps.gif" alt="littlest pet shop logo next to a panda figure"/>
+<img src="https://cupcakesthebulldog.neocities.org/layout%20pics/Stamps/stamps/accat.gif" alt="Punchy gif stamp"/>
 </p>
