@@ -1,4 +1,8 @@
 <p align="center">
+<img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
+</p>
+
+<p align="center">
   (https://spottedpanda.atabook.org/) 
 </p>
 <p align="center">
@@ -17,6 +21,8 @@
 
    
 I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, and mainly pandas. Don't be surprised for what I'm about to tell you: I make accessories for each of them.
+
+Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor because I don't have a good computer to be publishing on other sites, but Julian's Editor is available for most devices such as mobile, desktop, etc. I do not have an estimated date when it'll be completed.
 
 Ice cream is the best.. definitely pizza too, don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though. <img src="https://graphic.neocities.org/tumblr_inline_mibjrsgbUr1qz4rgp.gif"/>
 
@@ -44,6 +50,20 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixel-woods.neocities.org/images/blinkies/gloomybear.gif"/>
 <img src="https://loleah.neocities.org/graphics/blinkies/buddies.gif" alt="aj let&#39;s be buddies"/>
 <img src="https://petrapixel.neocities.org/assets/img/blinkies/blinkies/b%20(2).gif" alt="Blinkie: I love Glitter"/>
+<img src="https://blinkie-net.neocities.org/blinkies/8/Pizza.gif"/>
+<img src="https://blinkie-net.neocities.org/blinkies/8/Thevoid.gif"/>
+<img src="https://blinkie-net.neocities.org/blinkies/11/s_kuromi.gif"/>
+<img src="https://pixelbank.neocities.org/blinkies/book_worm.gif"/>
+<img src="https://pixelbank.neocities.org/blinkies/irlraccoon.gif"/>
+<img src="https://pixelbank.neocities.org/blinkies/lpscollector.gif"/>
+
+
+
+
+<p align="center">
+<img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
+</p>
+
 </p>
 
 <p align="center">
@@ -62,4 +82,13 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://futurefishy.neocities.org/assets/stamps/panda.png" alt="ikea baby panda teddy on abstract pink background stamp"/>
 <img src="https://cadeion.neocities.org/Assets/Other%20Stamps/25/lps.gif" alt="littlest pet shop logo next to a panda figure"/>
 <img src="https://cupcakesthebulldog.neocities.org/layout%20pics/Stamps/stamps/accat.gif" alt="Punchy gif stamp"/>
+<img src="https://blinkie-net.neocities.org/Stamps/Pp/strawberries.png"/>
+<img src="https://blinkie-net.neocities.org/Stamps/4/mnr.drach.png"/>
+<img src="https://blinkie-net.neocities.org/Stamps/8/Neapolitan.jpg"/>
+
+
+</p>
+
+<p align="center">
+<img src="https://blinkie-net.neocities.org/dividers/grayscale/11.gif"/>
 </p>
