@@ -37,7 +37,7 @@ Some of my goals are like, really unrealistic; create Work at a Pizza Place merc
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
-I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preffered so I can get back to you easier.<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
+I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
 
 Friend requests are a-okay! Hello!
 
