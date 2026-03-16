@@ -23,11 +23,12 @@
 </p>
 I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, and mainly pandas. Don't be surprised for what I'm about to tell you: I make accessories for each of them.<br><br>
 Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor because I don't have a good computer to be publishing on other sites, but Julian's Editor is available for most devices such as mobile, desktop, etc. I do not have an estimated date when it'll be completed.<br><br>
-Ice cream is the best.. definitely pizza too (pineapple pizza..), don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though. <img src="https://graphic.neocities.org/tumblr_inline_mibjrsgbUr1qz4rgp.gif"/>
+
+Ice cream and pockys are the best, specifically if it's strawberry flavour.. definitely pizza too (pineapple pizza..), don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though.
 
 Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting. Kuromi is one of my favorite characters, along with Gloomy Bear.
 
-I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinking, "this needs work," but the real problem is that the first time I discovered blinkies, stamps, and such, I've been doing this ever since. Not gonna lie though, they're pretty fun.
+I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinking, "this needs work," but the real problem is that the first time I discovered blinkies, stamps, and such, I've been doing this ever since. Not gonna lie though, they're pretty fun. <img src="https://wowzow.neocities.org/pix/pix841.gif"/>
 
 Some of my goals are like, really unrealistic; create Work at a Pizza Place merchandise (keychains mainly), and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate.
 
@@ -66,8 +67,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelbank.neocities.org/blinkies/book_worm.gif"/>
 <img src="https://pixelbank.neocities.org/blinkies/irlraccoon.gif"/>
 <img src="https://pixelbank.neocities.org/blinkies/lpscollector.gif"/>
-
-
+<img src="https://drive.google.com/thumbnail?id=1-emIIGoqxNbbgLyL7bYjve4ByxMhSdoW" alt="blinkie"/>
 
 
 <p align="center">
@@ -96,8 +96,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://blinkie-net.neocities.org/Stamps/4/mnr.drach.png"/>
 <img src="https://blinkie-net.neocities.org/Stamps/8/Neapolitan.jpg"/>
 <img src="https://pixelbank.neocities.org/stamp/15.png"/>
-
-
+<img src="https://favicons.neocities.org/images/boxes/white%20moon.png"/>
 
 </p>
 
