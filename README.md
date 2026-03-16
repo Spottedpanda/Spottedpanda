@@ -25,9 +25,12 @@ I don't have much.. but I collect things mainly. I do sewing, specifically, I'm 
 Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor because I don't have a good computer to be publishing on other sites, but Julian's Editor is available for most devices such as mobile, desktop, etc. I do not have an estimated date when it'll be completed.<br><br>
 Ice cream is the best.. definitely pizza too (pineapple pizza..), don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though. <img src="https://graphic.neocities.org/tumblr_inline_mibjrsgbUr1qz4rgp.gif"/>
 
-Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting. Kuromi is one of my favorite characters.
+Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting. Kuromi is one of my favorite characters, along with Gloomy Bear.
+
+I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinking, "this needs work," but the real problem is that the first time I discovered blinkies, stamps, and such, I've been doing this ever since. Not gonna lie though, they're pretty fun.
 
 Some of my goals are like, really unrealistic; create Work at a Pizza Place merchandise (keychains mainly), and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate.
+
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
@@ -35,6 +38,8 @@ Some of my goals are like, really unrealistic; create Work at a Pizza Place merc
 I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preffered so I can get back to you easier.<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
 
 Friend requests are a-okay! Hello!
+
+
 
 
 
