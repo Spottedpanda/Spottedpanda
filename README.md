@@ -41,7 +41,7 @@ I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me i
 
 Friend requests are a-okay! Hello!
 
-
+I tend to disconnect due to connection issues, I don't leave out of the blue!
 
 
 
