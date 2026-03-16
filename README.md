@@ -7,7 +7,8 @@
 </p>
 <p align="center">
   Send me messages, even while anonymous! 
-  <img src="https://caitsith.neocities.org/gloomybear.gif"/>
+  <img src="https://caitsith.neocities.org/gloomybear.gif"/><br><br>
+  <img src="https://wowzow.neocities.org/misc/gif/gif0154.gif"/>
 </p>
 
 <p align="center">
@@ -68,6 +69,9 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelbank.neocities.org/blinkies/irlraccoon.gif"/>
 <img src="https://pixelbank.neocities.org/blinkies/lpscollector.gif"/>
 <img src="https://drive.google.com/thumbnail?id=1-emIIGoqxNbbgLyL7bYjve4ByxMhSdoW" alt="blinkie"/>
+<img src="https://wowzow.neocities.org/blinkie/pearlieprincessontumblr06.gif"/>
+
+
 
 
 <p align="center">
