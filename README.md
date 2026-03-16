@@ -63,13 +63,13 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://loleah.neocities.org/graphics/blinkies/buddies.gif" alt="aj let&#39;s be buddies"/>
 <img src="https://petrapixel.neocities.org/assets/img/blinkies/blinkies/b%20(2).gif" alt="Blinkie: I love Glitter"/>
 <img src="https://blinkie-net.neocities.org/blinkies/8/Pizza.gif"/>
-<img src="https://blinkie-net.neocities.org/blinkies/8/Thevoid.gif"/>
 <img src="https://blinkie-net.neocities.org/blinkies/11/s_kuromi.gif"/>
 <img src="https://pixelbank.neocities.org/blinkies/book_worm.gif"/>
 <img src="https://pixelbank.neocities.org/blinkies/irlraccoon.gif"/>
 <img src="https://pixelbank.neocities.org/blinkies/lpscollector.gif"/>
 <img src="https://drive.google.com/thumbnail?id=1-emIIGoqxNbbgLyL7bYjve4ByxMhSdoW" alt="blinkie"/>
 <img src="https://wowzow.neocities.org/blinkie/pearlieprincessontumblr06.gif"/>
+</p>
 
 
 
