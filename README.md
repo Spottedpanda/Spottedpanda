@@ -23,7 +23,7 @@
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>About me</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/>
 </p>
 I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, and mainly pandas. Don't be surprised for what I'm about to tell you: I make accessories for each of them.<br><br>
-Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor because I don't have a good computer to be publishing on other sites, but Julian's Editor is available for most devices such as mobile, desktop, etc. I do not have an estimated date when it'll be completed.<br><br>
+Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor! <br><br>
 
 Ice cream and pockys are the best, specifically if it's strawberry flavour.. definitely pizza too (pineapple pizza..), don't tell Elliot though, sometimes things change, and that's a-okay! It's just once in a while though.
 
