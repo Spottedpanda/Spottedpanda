@@ -49,8 +49,7 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
 <p align="center">
-<strong>To do</strong>
-</p>
+<img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>To do</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
 <p align="center">
 
 * Create props for the cosplay.
