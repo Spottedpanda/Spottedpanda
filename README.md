@@ -43,14 +43,31 @@ Friend requests are a-okay! Hello!
 
 I tend to disconnect due to connection issues, I don't leave out of the blue!
 
-
-
 Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
+<p align="center">
+<strong>To do</strong>
+</p>
+<p align="center">
 
+* Create props for the cosplay.
+  - Panda
+  - Pizza
+
+* Make stamps/graphics for Neocities as rescourses for everyone.
+  - Elliot/Mia Builder stamps
+  - C00LK1D stamps
+
+* New profile picture
+
+* Art for introduction section and end of the profile
+
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
+</p>
 <p align="center>
 <img src="https://blinkies.crd.co/assets/images/gallery25/a4732b43.gif?v=f551d29f" alt="Untitled"/><img src="https://blinkies.crd.co/assets/images/gallery03/c55deaa6.gif?v=f551d29f" alt="Untitled"/><img src="https://oddityz.neocities.org/blinkies/pink/icecreamisevil.gif"/><img src="https://oddityz.neocities.org/blinkies/pink/sometimesijustwanttoscream.gif"/>
 <img src="https://oddityz.neocities.org/blinkies/bw/musicismything.gif"/>
