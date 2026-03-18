@@ -39,7 +39,7 @@ I only give out my Discord to close friends unless it's for buisness purposes.
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
-I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
+I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.
 
 Friend requests are a-okay! Hello!
 
@@ -55,10 +55,8 @@ Anyways, I'm more than happy to talk. I'll see you there!
 <p align="center">
 
 * Create props for the cosplay.
-  - Panda
-  - Pizza
 
-* Make stamps/graphics for Neocities as rescourses for everyone.
+* Make stamps/graphics for Neocities as rescourses for public use.
   - Elliot/Mia Builder stamps
   - C00LK1D stamps
 
@@ -69,6 +67,8 @@ Anyways, I'm more than happy to talk. I'll see you there!
 * Animation.
   - PN.
   - ISFYF.
+  - ATP.
+  - AYME.
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
