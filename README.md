@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-<img src="https://supplies.ju.mp/assets/images/tiny1/222cdbb1.gif?v=2e2c9a9d" alt="Untitled"/> Hello, I'm Mia.
+<img src="https://supplies.ju.mp/assets/images/tiny1/222cdbb1.gif?v=2e2c9a9d" alt="Untitled"/> Hello, I'm Mia/Luna.
 </p>
 
 <p align="center">
