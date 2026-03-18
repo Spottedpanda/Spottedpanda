@@ -31,19 +31,19 @@ Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting
 
 I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinking, "this needs work," but the real problem is that the first time I discovered blinkies, stamps, and such, I've been doing this ever since. Not gonna lie though, they're pretty fun. <img src="https://wowzow.neocities.org/pix/pix841.gif"/>
 
-Some of my goals are like, really unrealistic; build an entire game, and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate.
+Some of my goals are like, really unrealistic; build an entire game, and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate. I plan to go to a con soon!
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
-* I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
+I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.<img src="https://supplies.ju.mp/assets/images/gallery05/ea48a749.gif?v=2e2c9a9d" alt="Untitled"/>
 
-* Friend requests are a-okay! Hello!
+Friend requests are a-okay! Hello!
 
-* I tend to disconnect due to connection issues, I don't leave out of the blue!
+I tend to disconnect due to connection issues, I don't leave out of the blue!
 
-* Anyways, I'm more than happy to talk. I'll see you there!
+Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
