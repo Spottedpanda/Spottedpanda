@@ -61,6 +61,9 @@ Anyways, I'm more than happy to talk. I'll see you there!
   - C00LK1D stamps
 
 * New profile picture.
+  - ~~Sketch~~
+  - Colors
+  - Finish
 
 * Art for introduction section and end of the profile.
 
