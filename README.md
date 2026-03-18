@@ -33,6 +33,8 @@ I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinkin
 
 Some of my goals are like, really unrealistic; build an entire game, and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate. I plan to go to a con soon!
 
+I only give out my Discord to close friends unless it's for buisness purposes.
+
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p><p align="center">
@@ -60,9 +62,13 @@ Anyways, I'm more than happy to talk. I'll see you there!
   - Elliot/Mia Builder stamps
   - C00LK1D stamps
 
-* New profile picture
+* New profile picture.
 
-* Art for introduction section and end of the profile
+* Art for introduction section and end of the profile.
+
+* Animation.
+  - PN.
+  - ISFYF.
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
