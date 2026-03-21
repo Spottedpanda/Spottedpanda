@@ -16,14 +16,19 @@
 </p>
 
 <p align="center">
-<img src="https://supplies.ju.mp/assets/images/tiny1/222cdbb1.gif?v=2e2c9a9d" alt="Untitled"/> Hello, I'm Mia/Luna.
+Hello, I'm Mia/Luna.
+</p>
+
+<p align="center">
+Artist/Animator
 </p>
 
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>About me</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/>
 </p>
-I don't have much.. but I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, and mainly pandas. Don't be surprised for what I'm about to tell you: I make accessories for each of them.<br><br>
-Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor! <br><br>
+
+
+I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, African wild dogs and mainly pandas.<br><br>Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor! <br>
 
 Ice cream and pockys are the best, specifically if it's strawberry flavour.. definitely pizza too (pineapple pizza..), I used to not like it though, sometimes things change, and that's a-okay! It's just once in a while though.
 
@@ -40,10 +45,10 @@ I only give out my Discord to close friends unless it's for buisness purposes.
 </p><p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/> <strong>Pony Town</strong> <img src="https://gifcity.carrd.co/assets/images/gallery398/b1dc3475.gif?v=49efbe4c" alt="Untitled"/></p>
 I'm mainly afk.. (away status), expect late replies. (+1 minute) Whispering me is preferred so I can get back to you easier.
+(But if you're curious about why I'm mainly afk: I love baking.)
+<br><br>Friend requests are a-okay! Hello!
 
-Friend requests are a-okay! Hello!
-
-I tend to disconnect due to connection issues, I don't leave out of the blue!
+<br>I tend to disconnect due to connection issues, I don't leave out of the blue.
 
 Anyways, I'm more than happy to talk. I'll see you there!
 <img src="https://supplies.ju.mp/assets/images/gallery05/9747a42c.gif?v=2e2c9a9d" alt="Untitled"/>
