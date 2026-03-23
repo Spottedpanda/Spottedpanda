@@ -65,9 +65,9 @@ Anyways, I'm more than happy to talk. I'll see you there!
   - Elliot/Mia Builder stamps
   - C00LK1D stamps
 
-* New profile picture.
+* New profile picture. (Current)
   - ~~Sketch~~
-  - Colors
+  - Colors (50&)
   - Finish
 
 * Art for introduction section and end of the profile.
