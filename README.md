@@ -14,11 +14,14 @@
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
-
 <p align="center">
-Hello, I'm Mia/Luna.
+Welcome!
 </p>
-
+<p align="center">
+<img src="https://cloudcover.neocities.org/toybox/characters/panicpuppyDA13.gif" width="270" height="400"></p>
+<p align="center">
+Mia/Luna
+</p>
 <p align="center">
 Artist/Animator
 </p>
