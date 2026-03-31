@@ -11,6 +11,30 @@
   <img src="https://wowzow.neocities.org/misc/gif/gif0154.gif"/>
 </p>
 
+
+<div align="center">
+  <details>
+    <summary><b>Other socials!</b></summary>
+    <br>
+    (https://spottedpandaa.straw.page)</p>
+    Send me messages as an annonymous user! Even drawings!
+  </p>
+
+<div align="center">
+  <br>
+    (https://x.com/Spottedpan35124)  </p>
+    Check out my art and future animations! (Unfortunately, there is nothing. Posting later!)
+  </p>
+    
+    
+    
+    
+    </p>
+  </details>
+</div>
+
+
+
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
 </p>
