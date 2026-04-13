@@ -64,7 +64,9 @@ Artist/Animator
       <img src="https://media.tenor.com/I7K5vfzDLggAAAAM/akita-neru-akita.gif" width="200" alt="Description">
     </td>
     <td valign="middle">
-      I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, African wild dogs and mainly pandas.<br><br>Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor! <br>
+I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. I'm hoping to open commissions whenever I get an opportunity. <br><br>
+
+When I’m not drawing, I’m usually sewing or adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
     </td>
   </tr>
 </table>
@@ -73,20 +75,15 @@ Artist/Animator
   
 <table>
   <tr>
-    <td>
-      <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">
-    </td>
     <td valign="middle">
-      I collect things mainly. I do sewing, specifically, I'm just creating more pandas when I'm in the mood. (4 so far.) Speaking of which, collecting plushies are one of my hobbies, bats, bunnies, African wild dogs and mainly pandas.<br><br>Coding is one of my passions! I've started my hobby back in 2022, and now I'm starting again since months ago! I've been wanting to put this skill to use to create games for a long time, but right now, I'm currently working on a Work at a Pizza Place fan-game but in a RPG form, It'll be published on Julian's Editor! <br>
+I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. I'm hoping to open commissions whenever I get an opportunity. <br><br>
+
+When I’m not drawing, I’m usually sewing or adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
     </td>
-  </tr>
+    <td>
+      <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
+    </td>  </tr>
 </table>
-
-
-  
-
-
-
 
 
 
