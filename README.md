@@ -76,22 +76,16 @@ When I’m not drawing, I’m usually sewing or adding to my collections. I love
 <table>
   <tr>
     <td valign="middle">
-I'm an animator and artist, stated above. I've been doing animation projects since 2022, and drawing since forever. I'm hoping to open commissions whenever I get an opportunity. <br><br>
+I'm currently in the Sanrio, The Last Unicorn, and Pucca fandom. My current favorite characters are Kuromi, Garu, Maud Pie, and Gloomy Bear, currently working on a Kuromi cosplay and so far, I'm mainly working on the accessories for her, Gloomy Bear may be my next project.<br><br>
 
-When I’m not drawing, I’m usually sewing or adding to my collections. I love making plush pandas when I’m bored, (four so far!) to go along with my collection of bats, bunnies, and African wild dogs. The rest are all thrifted plushies. <br>
+Going to a cosplay convention is one of my goals, alongside with the fact that animated shows and movies have been inspiring me to keep creating projects, just of any kind!
     </td>
     <td>
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
     </td>  </tr>
 </table>
 
-
-
-Not in many fandoms, but I would say Sanrio and The Last Unicorn are interesting. Kuromi is one of my favorite characters, along with Gloomy Bear,and Maud Pie.
-
 I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinking, "this needs work," but the real problem is that the first time I discovered blinkies, stamps, and such, I've been doing this ever since. Not gonna lie though, they're pretty fun. <img src="https://wowzow.neocities.org/pix/pix841.gif"/>
-
-Some of my goals are like, really unrealistic; build an entire game, and finish my cosplay, which I have barely any motivation for.. but if you're interested, and in a nutshell: Mia Builder but sprinkled with Kuromi energy and hate. I plan to go to a con soon!
 
 I only give out my Discord to close friends unless it's for buisness purposes.
 
