@@ -45,7 +45,7 @@
 </h2>
 
 <p align="center">
-<img src="https://cloudcover.neocities.org/toybox/characters/panicpuppyDA13.gif" width="270" height="400"></p>
+<img src="https://cloudcover.neocities.org/toybox/characters/panicpuppyDA13.gif" width="400" height="400"></p>
 <p align="center">
 
 <p align="center">
@@ -84,10 +84,6 @@ Going to a cosplay convention is one of my goals, alongside with the fact that a
       <img src="https://i0.wp.com/mediachomp.com/wp-content/uploads/2021/06/ca58293123ffc1b9484f25ea259df2bb.gif?resize=498%2C800&ssl=1)" width="200" alt="Description">    
     </td>  </tr>
 </table>
-
-I decorate my Github, ALOT. I would be done 5 hours ago and I'd still go thinking, "this needs work," but the real problem is that the first time I discovered blinkies, stamps, and such, I've been doing this ever since. Not gonna lie though, they're pretty fun. <img src="https://wowzow.neocities.org/pix/pix841.gif"/>
-
-I only give out my Discord to close friends unless it's for buisness purposes.
 
 <p align="center">
 <img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/><img src="https://pixelsafari.neocities.org/dividers/more/hearts3.gif"/>
